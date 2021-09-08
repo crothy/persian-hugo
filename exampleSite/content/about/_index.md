@@ -1,39 +1,15 @@
 ---
-title: I am
-image: images/author.jpg
+title: Hallo, ich bin Lara.  Nach meinem Abitur beschloss ich für 6 Monate nach Island
+  zu reisen und dort als Volunteer an einem Natur- und Umweltschutzprojekt teilzunehmen.
+  Hier nehme ich euch auf meine Reise mit!
+image: "/images/img_8785.JPEG"
 description: This is meta description.
 
 ---
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Condimentum in urna justo elit turpis risus vitae viverra enim. Augue quis vitae in non nisi, posuere ultrices tempus. Feugiat consequat suspendisse laoreet vitae enim adipiscing cursus. Duis nunc vitae tincidunt sed nibh id. Egestas erat consequat, ornare etiam donec faucibus. Lorem ut enim nunc, senectus adipiscing sed. Lobortis commodo aliquet pulvinar molestie faucibus diam. Semper porttitor justo, et dictum.
+## Was machst du nach deinem Abitur?
 
- <br>
+Diese Frage wurde mir oft gestellt und lange hatte ich keine Antwort darauf. Direkt studieren? Nein, ich will erst ein Jahr Pause machen. Wenn das erstmal geklärt ist stellt sich schon die nächste Frage. Wohin will ich und was möchte ich lernen oder erleben?
 
-## Bla blub
+Erstmal wollte ich nach Spanien und dort einen Sprachkurs belegen. Aber einen Sprachkurs kann ich auch in Deutschland machen und ich wollte ja schon immer mal nach Island. Also habe ich recherchiert was es dort für Projekte gibt, die auch für Jugendliche unter 18 möglich sind. Da fallen schon mal die ersten raus. Der Umweltschutz ist ein Thema das mich sehr interessiert, also fiel mir die Entscheidung nicht allzu schwer als ich auf das Natur- und Umweltschutzprojekt in Island gestoßen bin. Die letzte Frage die sich stellt ist wie lange ich in Island bleiben will. Meine Eltern waren für 3 Monate, und danach könnte ich noch verlängern wenn es mir gut gefällt. Wenn es nach meiner Schwester ginge wäre ich erst im Januar für 4 Wochen weggegangen. ;) Doch ich wollte für 6 Monate nach Island. Mit ein bisschen Überzeugungskraft waren schließlich alle einverstanden und ich meldete mich für das Projekt an. 
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Condimentum in urna justo elit turpis risus vitae viverra enim. Augue quis vitae in non nisi Massa cras odio ante cursus.
-
-* Et ipsum euismod et aenean duis.
-* Mate ipsum euismod nulla et diam.
-* Rio euismod nulla et aenean diam konta.
-
-<br>
-<br>
-
-## My Hobbies
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Condimentum in urna justo elit turpis risus vitae viverra enim. Augue quis vitae in non nisi Massa cras odio ante cursus.
-
-* Et ipsum euismod et aenean duis.
-* Mate ipsum euismod nulla et diam.
-* Rio euismod nulla et aenean diam konta.
-
-<br>
-<br>
-
-## My Experiences
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Condimentum in urna justo elit turpis risus vitae viverra enim. Augue quis vitae in non nisi Massa cras odio ante cursus.
-
-1. Et ipsum euismod et aenean duis.
-2. Mate ipsum euismod nulla et diam.
-3. Rio euismod nulla et aenean diam konta.
+Nach einer kurzen Bewerbungsphase kam auch sehr schnell die Zusage über einen Platz. Die Vorfreude war riesig, auch wenn es erst März 2021 war und ich kurz vor meinen Abiturprüfungen stand. Die ersten Sachen wurden gekauft, die Taschen gepackt und alle Papiere wurden ausgefüllt. Mit der Zeit rückte der Abflug immer näher und die Vorfreude stieg immer weiter.
