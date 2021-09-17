@@ -1,49 +1,25 @@
 ---
-title: "Networks and the Nature of the Firm"
-date: 2020-01-12T12:14:34+06:00
-image: "images/post/post-6.jpg"
-author: "John Doe" # use capitalize
-description: "This is meta description."
-categories: ["nature"]
-tags: ["thumb", "video", "top"]
-draft: false
+title: Wie lange soll ich im Ausland bleiben?
+date: 2021-09-17T12:41:34+00:00
+image: "/images/img_5559.HEIC"
+author: Lara Roth
+description: This is meta description.
+categories:
+- Vor der Reise
+tags:
+- How to?
+- Vor der Reise
+
 ---
+Nachdem man sich entschlossen hat wohin man reisen möchte stellt sich die Frage, wie lange man im Ausland bleiben will. Mir war schon von Beginn an klar, das ich ein Jahr Pause zwischen Abitur und Studium machen möchte. Deshalb hatte ich die Auswahl zwischen 2 Wochen bis hin zu einem ganzen Jahr. Meiner Meinung nach hätten nur ein paar Wochen für mich nicht gereicht um wirklich all die Erfahrung und Zeit im Ausland zu verbringen die ich haben wollte. Ich wollt mindestens 3 Monate bleiben, aber ein ganzes Jahr war mir zu lang.
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore
-et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip
-ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu
-fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt
-mollit anim id est laborum.
+Ich entschied mich schließlich für eine Dauer von 6 Monaten, da ich so genug Zeit hatte um viel zu erkunden und zu lernen, ich dennoch aber nicht zu lange weg war.
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
-dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
-ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat
-nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit
-anim id est laborum. Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque
-laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto beatae vitae
-dicta sunt explicabo. Nemo enim ipsam voluptatem quia voluptas sit aspernatur aut odit aut fugit, sed quia
-consequuntur magni dolores eos qui ratione voluptatem sequi nesciunt. Neque porro quisquam est.
+**„Diese Frage muss aber jeder für sich selbst beantworten.“**
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
-dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
-ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat
-nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit
-anim id est laborum. Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque
-laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto beatae vitae
-dicta sunt explicabo. Nemo enim ipsam voluptatem quia voluptas sit aspernatur aut odit aut fugit, sed quia
-consequuntur magni dolores eos qui ratione voluptatem sequi nesciunt. Neque porro quisquam est, qui dolorem
-ipsum quia dolor sit amet, consectetur, adipisci velit, sed quia non numquam eius modi tempora incidunt ut
-labore et dolore magnam aliquam quaerat voluptatem.
+Hier bei meinem Projekt bleiben die meisten zwischen 2 Wochen und 3 Monaten, wobei ein paar Wochen schon sehr häufig vorkommt. Als ich zuerst in Reykjavik war und die ersten 9 Volunteers kennengelernt habe, erzählten viele dass sie nur ein paar Wochen bleiben werden, die längste Dauer war 3 1/2 Monate.  
+Wenn man so lange bleibt wie ich lernt man viele neue Menschen kennen, was super ist denn dafür geht man ja auch zum Teil mit anderen Volunteers ins Ausland. Doch ab einer Dauer von 3 Monaten, muss man sich auch von sehr vielen Menschen verabschieden. Zuerst klingt das gar nicht so schlimm, aber wenn man jeden Tag viel Zeit mit jemandem verbringt, ist es schon ein komisches Gefühl wenn jemand geht. Und hier trägt jeder einzelne zu der Atmosphere und zum Alltag bei, sodass jeder eigentlich unverzichtbar für die Gemeinschaft wird. Natürlich versteht man sich mit manchen Menschen besser, mit anderen weniger, dennoch sind wir alle wie eine grosse Familie die aufeinander aufpasst und füreinander da ist wenn jemand was braucht.
 
-> Dolorem ipsum quia dolor sit amet, consectetur, adipisci velit, sed quia non numquam eius modi tempora incidunt ut labore et dolore magnam aliquam quaerat voluptatem.
+„**Auch wenn man die Leute nicht lange kennt werden sie schnell ein wichtiger Teil deines Lebens hier.“**
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
-dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
-ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat
-nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit
-anim id est laborum. Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque
-laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto beatae vitae
-dicta sunt explicabo. Nemo enim ipsam voluptatem quia voluptas sit aspernatur aut odit aut fugit, sed quia
-consequuntur magni dolores eos qui ratione voluptatem sequi nesciunt. Neque porro quisquam est, qui dolorem
-ipsum quia dolor sit amet, consectetur, adipisci velit, sed quia non numquam eius modi tempora incidunt ut
-labore et dolore magnam aliquam quaerat voluptatem.
+Mich hat es überrascht, wie schnell man jemanden kennenlernt. Zu Beginn der Reise waren wir 2 Tage in Reykjavik, wo wir 9 Volunteers waren. Während diesen 2 Tagen hat man sich so schnell kennengelernt, dass es sich nach ein paar Tagen so angefühlt hat als würde man die Menschen schon länger kennen. Auch als wir danach in das Haus in Stöðvarfjörður angekommen sind und dort 17 andere Volunteers waren, wächst man sehr schnell zu einer grossen Familie zusammen. Es ist erstaunlich, wie man nur weil man zusammen in einem Haus lebt sich so viel näher kommt und auch schnell Freundschaften entstehen können.
