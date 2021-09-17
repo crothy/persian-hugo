@@ -1,7 +1,7 @@
 ---
 title: Wie lange soll ich im Ausland bleiben?
 date: 2021-09-17T12:41:34+00:00
-image: "/images/img_5559-heic.pdf"
+image: "/images/img_5559_jpeg.jpg"
 author: Lara Roth
 description: This is meta description.
 categories:
