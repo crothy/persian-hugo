@@ -3,7 +3,6 @@ author = "Lara Roth"
 categories = ["Beach cleanup", "Island "]
 date = 2021-09-26T01:10:00Z
 description = ""
-draft = true
 image = "/images/img_5901_jpeg.jpg"
 tags = ["Beach cleanup", "Island"]
 title = "Beach cleanup"
