@@ -16,10 +16,16 @@ Wir begannen den Müll zu sammeln, jeder mit Tüten und Handschuhen ausgestattet
 
 ![](/images/f5c8f7bf-6015-4422-a1ce-9656fae6d594-3.JPG)
 
- Am ersten cleanup war ein sehr großes Fischernetz dass so stark im Boden verankert war dass es unmöglich war es hinauszuziehen. Es war enttäuschend, diesen großen Müll liegen lassen zu müssen weil wir es nicht entfernen konnten. Ich war erstaunt wie viel Müll am Strand lag, obwohl dieser selten besucht wird und leer war. Nach etwa 2 Stunden sind wir mit vollem Kofferraum zu einem weiteren Strand gefahren als es begann zu regnen. Trotz dessen sind wir Müll sammeln gegangen. Der Strand war etwas kleiner, weshalb wir auch weniger Müll gefunden haben. Es hat mich aber auch überrascht wie viel Verpackungsmüll wir gefunden haben, also wie viele Menschen ihren Müll einfach am strand liegen lassen.
+Am ersten cleanup war ein sehr großes Fischernetz dass so stark im Boden verankert war dass es unmöglich war es hinauszuziehen. Es war enttäuschend, diesen großen Müll liegen lassen zu müssen weil wir es nicht entfernen konnten. Ich war erstaunt wie viel Müll am Strand lag, obwohl dieser selten besucht wird und leer war. Nach etwa 2 Stunden sind wir mit vollem Kofferraum zu einem weiteren Strand gefahren als es begann zu regnen. Trotz dessen sind wir Müll sammeln gegangen. Der Strand war etwas kleiner, weshalb wir auch weniger Müll gefunden haben. Es hat mich aber auch überrascht wie viel Verpackungsmüll wir gefunden haben, also wie viele Menschen ihren Müll einfach am strand liegen lassen.
 
 ![](/images/img_6390-kopie.jpg)
+
+Nach etwa 15 Minuten war meine Tüte schon halb voll. Wir sind dann so etwa 2 Stunden geblieben, am Ende waren mehrere Tüten voll.
 
 Ich nehme aus diesen ersten cleanups mit, wie wichtig es ist keinen Müll einfach überall liegen zu lassen und wieviel Müll überall liegt obwohl es dort kein Müll geben sollte.
 
 An dieser Stelle ist jede Person gefragt, denn jeder kann wohin er geht Müll aufsammeln wenn er welches auf dem Boden sieht.
+
+Nach den cleanups sortieren wir den Müll in Kategorien und geben unsere Ergebnisse an eine Organisation weiter die dann mehrere Daten auswertet. Außerdem werden Unternehmen, von denen man Müll gefunden hat von der Organisation benachrichtigt. 
+
+Der Müll wird dann wenn möglich in ein Recycling Center gebracht und Holz und Fischernetze werden von uns upcycled oder weiterverwendet. 
