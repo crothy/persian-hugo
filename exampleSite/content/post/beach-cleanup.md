@@ -24,8 +24,10 @@ Nach etwa 15 Minuten war meine Tüte schon halb voll. Wir sind dann so etwa 2 St
 
 Ich nehme aus diesen ersten cleanups mit, wie wichtig es ist keinen Müll einfach überall liegen zu lassen und wieviel Müll überall liegt obwohl es dort kein Müll geben sollte.
 
+![](/images/img_6579.jpg)
+
 An dieser Stelle ist jede Person gefragt, denn jeder kann wohin er geht Müll aufsammeln wenn er welches auf dem Boden sieht.
 
-Nach den cleanups sortieren wir den Müll in Kategorien und geben unsere Ergebnisse an eine Organisation weiter die dann mehrere Daten auswertet. Außerdem werden Unternehmen, von denen man Müll gefunden hat von der Organisation benachrichtigt. 
+Nach den cleanups sortieren wir den Müll in Kategorien und geben unsere Ergebnisse an eine Organisation weiter die dann mehrere Daten auswertet. Außerdem werden Unternehmen, von denen man Müll gefunden hat von der Organisation benachrichtigt.
 
-Der Müll wird dann wenn möglich in ein Recycling Center gebracht und Holz und Fischernetze werden von uns upcycled oder weiterverwendet. 
+Der Müll wird dann wenn möglich in ein Recycling Center gebracht und Holz und Fischernetze werden von uns upcycled oder weiterverwendet.
