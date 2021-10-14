@@ -5,10 +5,12 @@ date = 2021-10-14T17:17:00Z
 description = ""
 image = ""
 tags = ["Travel", "Island", "Around Iceland"]
-title = "Von stöðvarfjörður nach Selfoss"
+title = "Von Stöðvarfjörður nach Selfoss"
 
 +++
 Im Haus wo ich bislang war, in Stöðvarfjörður, gab es nicht genug Platz für uns und die 10 neue Volunteers die am Montag anreisen sollten. Montag Mittag wurde entschieden dass 9 von uns für 2 Wochen in der Nähe von Selfoss gehen werden und dort mit der Forestry organization Bäume pflanzen werden. Außerdem gab es die golden circle tour ( man sieht den Thingvellir National Park, die Geysire und den Wasserfall Gullfoss) noch gratis dazu. Nach einer langen Besprechung und auslosen wer mitfahren darf (weil dann doch 14 Leute mitfahren wollten) fanden sich 9 Leute zusammen, darunter auch ich. Schnell musste dann gepackt werden, es sollte ja am nächsten Morgen direkt los gehen. Das Packen verlief einfacher als gedacht, es passt erstaunlicherweise immer noch alles in meinen Backpack! Am Abend gab es dann noch als Abschied Polarlichter zu sehen, was natürlich sehr schön war. Vor allem waren sie dieses Mal sehr stark, man konnte sie direkt aus dem Fenster meines Zimmers sehen was normalerweise nicht möglich ist da es komplett dunkel sein muss um Polarlichter sehen zu können. Leider waren sie sehr schnell weg sodass es nur ein Foto mit dem Handy gibt.
+
+![](/images/polarlichter.jpg)
 
 Am nächsten Morgen wurde es dann sehr stressig, denn es gab die neue Information, dass jetzt doch nur 5 Leute nach Selfoss fahren dürfen. Dann musste nochmal ausgelost werden, es war eine halbe Stunde vor Abreise, die Koffer standen alle schon gepackt bereit!
 
