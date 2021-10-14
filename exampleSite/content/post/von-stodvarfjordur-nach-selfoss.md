@@ -3,7 +3,7 @@ author = "Lara Roth"
 categories = ["Travel", "Around Iceland", "Island"]
 date = 2021-10-14T17:17:00Z
 description = ""
-image = ""
+image = "/images/img_7164.jpg"
 tags = ["Travel", "Island", "Around Iceland"]
 title = "Von Stöðvarfjörður nach Selfoss"
 
