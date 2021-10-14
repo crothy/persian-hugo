@@ -16,9 +16,13 @@ Am nächsten Morgen wurde es dann sehr stressig, denn es gab die neue Informatio
 
 Dann ging es aber los, nur ein Gruppenfoto durfte nicht fehlen.
 
+![](/images/gruppenfoto_2.jpg)
+
 Die fahrt dauert fast 8 Stunden, man muss einmal durch den Süden von Island fahren.
 
 Unser erster Stopp war die Gletscher- Lagune und der Diamond Beach. Da es aber sehr neblig war konnte man den Gletscher nicht wirklich erkennen, dennoch war es sehr beeindruckend diese große Menge an Eis zu sehen die von dem Gletscher immer abfällt. Der Diamond Beach lag direkt daneben, dort liegen kleinere Eisstücke die aber auch von dem Gletscher stammen.
+
+![](/images/gletscher.jpg)
 
 Dann sind wir weiter gefahren bis zum Black Sand Beach. Dort war der Regen und der Wind sehr stark, aber es war trotzdem sehr schön und es war sehr beeindruckend mit der schwarzen Farbe des Sandes und die eckigen Formen der Steine.
 
