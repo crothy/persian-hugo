@@ -26,8 +26,14 @@ Unser erster Stopp war die Gletscher- Lagune und der Diamond Beach. Da es aber s
 
 Dann sind wir weiter gefahren bis zum Black Sand Beach. Dort war der Regen und der Wind sehr stark, aber es war trotzdem sehr schön und es war sehr beeindruckend mit der schwarzen Farbe des Sandes und die eckigen Formen der Steine.
 
+![](/images/img_6986.jpg)
+
 Das nächste Mal sind wir am Wasserfall Skógafoss angehalten. Der Regen wurde nicht weniger, aber der Wasserfall war sehr groß und sehr schön, da hat man das schlechte Wetter fast vergessen.
 
-Danach ging es direkt zum nächsten Wasserfall, der Wasserfall Seljalandsfoss, der fast direkt um die Ecke war. Das Highlight hier war der Weg, der einen Rundgang um den Wasserfall macht. Ja, man kann sich also auch hinter den Wasserfall stellen, was sehr toll war! Nach einer langen Fahrt sind wir dann Abends am Haus angekommen, was etwa 20 Minuten von Selfoss, und 1 Stunde von Reykjavik entfernt ist.
+![](/images/img_6994.jpg)
 
-Hier noch ein Bild von meinem Zuhause für die nächsten 2 Wochen.
+Danach ging es direkt zum nächsten Wasserfall, der Wasserfall Seljalandsfoss, der fast direkt um die Ecke war. Das Highlight hier war der Weg, der einen Rundgang um den Wasserfall macht. Ja, man kann sich also auch hinter den Wasserfall stellen, was sehr toll war! 
+
+![](/images/img_7041.jpg)![](/images/img_7031.jpg)
+
+Am Abend sind wir dann am Haus angekommen. Es ist etwa 20 Minuten von Selfoss und 1 Stunde von Reykjavik entfernt.
