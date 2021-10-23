@@ -16,7 +16,9 @@ Unser erster Stopp war Gullfoss Wasserfall. Leider war das Wetter nicht ganz so 
 
 ![](/images/img_0894.jpg)
 
-Danach ging es weiter zu dem Geysir. Es war sehr beeindruckend zu sehen wie 80 bis 100°C heißes Wasser aus dem Geysir gesprudelt ist, obwohl um den Geysir herum alles vereist war. Hier ein kleines Video dass das Spektakel nochmal zeigt. Der Geysir bricht alle vier bis zehn Minuten aus und erreicht eine Höhe von 15 bis 20 Metern.
+Danach ging es weiter zu dem Geysir. Es war sehr beeindruckend zu sehen wie 80 bis 100°C heißes Wasser aus dem Geysir gesprudelt ist, obwohl um den Geysir herum alles vereist war.  Der Geysir bricht alle vier bis zehn Minuten aus und erreicht eine Höhe von 15 bis 20 Metern.
+
+![](/images/img_7463.jpg)
 
 ![](/images/img_0902.jpg)
 
