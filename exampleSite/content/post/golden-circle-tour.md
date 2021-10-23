@@ -26,6 +26,8 @@ Die letzte Station war der Thingvellir Nationalpark. Dort treffen 2 tektonische 
 
 ![](/images/img_0954.jpg)![](/images/img_0931.jpg)![](/images/img_0917.jpg)
 
+![](/images/img_0943.jpg)
+
 Auf dem Weg zurück haben wir noch einen sehr schönen Sonnenuntergang gesehen.
 
 ![](/images/img_7373.jpg)![](/images/img_0971.jpg)
