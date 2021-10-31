@@ -1,6 +1,6 @@
 ---
 title: 'Hallo, ich bin Lara. '
-image: ''
+image: "/images/b38f55b4-a321-4b03-bf5e-6ab76a428b12.JPG"
 description: This is meta description.
 
 ---
