@@ -3,7 +3,7 @@ author = "Lara Roth"
 categories = ["How to?", "Island", "Workshop"]
 date = 2021-11-27T14:06:00Z
 description = ""
-image = ""
+image = "/images/img_6890.jpg"
 tags = ["Workshop", "Island", "How to?"]
 title = "Digitale Umweltverschmutzung"
 
