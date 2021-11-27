@@ -8,9 +8,9 @@ tags = ["Workshop", "Island", "How to?"]
 title = "Digitale Umweltverschmutzung"
 
 +++
-Hier in Island haben wir viele Workshops über unterschiedliche Themen, eins davon handelte von digitaler Umweltverschmutzung. Dabei haben wir erst eine kurze Dokumentation über das Thema und anschliessend hat jeder noch weitere Recherchen angestellt um mehr Informationen zu erhalten. Dabei bin ich auf schockierende Zahlen gestoßen.
+Hier in Island haben wir viele Workshops über unterschiedliche Themen, eins davon handelte von digitaler Umweltverschmutzung. Dabei haben wir erst eine kurze Dokumentation über das Thema und anschliessend hat jeder Volunteer noch weitere Recherchen angestellt um mehr Informationen zu erhalten. Dabei bin ich auf schockierende Zahlen gestoßen.
 
-Wusstest du dass eine email etwa 4 kg CO2 produziert? Dabei gibt es so viele Emails die wir ungelesen in den Spam Ordner bewegen. Auch die emails die nicht komplett gelöscht werden verbrauchen CO2. Denn sie müssen gespeichert werden und jedes Mal neu geladen werden wenn du deine Mailbox öffnest.
+Wusstest du dass eine Email etwa 4 kg CO2 produziert? Dabei gibt es so viele Emails die wir ungelesen in den Spam Ordner bewegen. Auch die Emails die nicht komplett gelöscht werden verbrauchen CO2. Denn sie müssen gespeichert werden und jedes Mal neu geladen werden wenn du deine Mailbox öffnest.
 
 Ein schockierender Fakt ist außerdem dass unser Internet Konsum im Jahr für etwa 2% der Treibhausgasemissionen zuständig ist. Dabei kann man recht einfach seine Emissionen im Zusammenhang mit dem Internet Konsum reduzieren.
 
