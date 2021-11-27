@@ -22,6 +22,10 @@ Hier folgen ein paar einfache Tipps um deinen digitalen Konsum umweltfreundliche
 2. Lösche die Emails komplett die du nicht mehr brauchst
 3. Gebe die gewünschte Website direkt in die Suchleiste ein und gehe nicht erst über Google
 4. Verwende elektronische Geräte solange sie funktionieren
-5. Wenn dein Gerät kaputt ist entsorge es korrekt damit die Ressourcen weitgehend wiederverwendet werden können (fast 80 Prozent der Bestandteile lassen sich wiederverwenden.) . Es gibt mittlerweile viele Stellen wo man sein Gerät abgeben kann damit dieses recycled wird.
+5. Wenn dein Gerät kaputt ist entsorge es korrekt damit die Ressourcen 
+
+   weitgehend wiederverwendet werden können (fast 80 Prozent der 
+
+   Bestandteile lassen sich wiederverwenden.) . Es gibt mittlerweile viele Stellen wo man sein Gerät abgeben kann damit dieses recycled wird.
 6. Tabs schließen wenn du sie nicht mehr brauchst
 7. Musik downloaden anstatt zu streamen
