@@ -23,3 +23,21 @@ Wenn man so lange bleibt wie ich lernt man viele neue Menschen kennen, was eine 
 **Auch wenn man die Leute nicht lange kennt werden sie schnell ein wichtiger Teil deines Lebens hier.**
 
 Mich hat es überrascht, wie schnell man jemanden kennenlernt. Zu Beginn der Reise waren wir 2 Tage in Reykjavik, wo wir 9 Volunteers waren. Während diesen 2 Tagen hat man sich so schnell kennengelernt, dass es sich nach ein paar Tagen so angefühlt hat als würde man die Menschen schon länger kennen. Auch als wir danach in das Haus in Stöðvarfjörður angekommen sind und dort 17 andere Volunteers waren, wächst man sehr schnell zu einer grossen Familie zusammen. Es ist erstaunlich, wie man nur weil man zusammen in einem Haus lebt sich so viel näher kommt und auch schnell Freundschaften entstehen können.
+
+### Combien de temps vais-je rester à l’étranger?
+
+Apres avoir prise la décision où je voulais partir, il me restais encore la question de la durée de mon voyage. Depuis le début je savais, que je voulais faire une année de pause entre mon bac et mes études. De toute façon, je ne savais pas encore exactement ce que je voulais étudier.
+
+J’avais donc le choix de partir entre 2 semaines et 1 an. À mon avis quelques semaines ne suffiraient pas pour que je puisse vivre pleinement les expériences que je voulais faire, je savais qu’il me fallait au moins 3 mois. Je me suis décidée pour une durée de 6 mois finalement, pour vraiment pouvoir passer une longue période de temps comme volontaire en Islande.
+
+**Mais bien sûr, chacun doit prendre cette décision pour sois-même.**
+
+Dans mon projet, la plus grande partie des volontaires reste entre 2 semaines et 3 mois, bien que beaucoup restent que quelques semaines. Quand je suis arrivée a Reykjavik où j’ai rencontré les premiers volontaires, la grande majorité restait entre 2 et 4 semaines, seulement 3 autres volontaires restaient 3 mois et 3 mois et demi.
+
+Si on reste aussi longtemps que moi, on apprend à connaître beaucoup de personnes, ce qui est aussi un point qui a été décisif quand je me suis décidée à faire du volontariat. Mais avec le temps on doit aussi dire au revoir a beaucoup de gens, ce qui est des fois plus dur, des fois moins. En faite chaque deuxième semaine le samedi des volontaires partent, et le lundi des nouveaux volontaire arrivent.
+
+Au premier regard cela ne paraît pas tres dur, mais quand on vit tout le temps ensemble on apprend à se connaitre tres rapidement et vite cela devient triste si la personne n’est plus là. Des amitiés se créent, des souvenirs inoubliables sont formés. Chaque volontaire contribue à l’atmosphere, chaque volontaire devient indispensable pour la communauté. Bien sûr qu’il y a des personnes avec lesquelles on s’entends mieux q’avec d’autres, mais on devient comme une grande famille qui est là l’u pour l’autre et qui se soutient toujours.
+
+**Même si on ne connait pas les volontaires tres longtemps, ils deviennent tres vite important pour toi.**
+
+J’ai été surprise par la rapidité avec laquelle on apprend à connaître quelqu’un. J’ai des amitiés profondes qui sont nées dans 4 semaines, un temps dans lequel normalement je n’aurait pas pu apprendre à connaitre une personne aussi profondément. C’est étonnant car, seulement parce qu’on vit tous ensemble et qu’on a des intérêts en communs qui naissent avec le projet, on se rapproche et on crée des liens uniques.
