@@ -31,3 +31,23 @@ Die letzte Station war der Thingvellir Nationalpark. Dort treffen 2 tektonische 
 Auf dem Weg zurück haben wir noch einen sehr schönen Sonnenuntergang gesehen.
 
 ![](/images/img_7373.jpg)![](/images/img_0971.jpg)
+
+Le cercle d’or est un voyage que l’on fait de Reykjavik en passant par 3 étapes, la chute d’au Gullfoss, les geysers et le parc national Thingvellir.
+
+Le mardi soir on apprend que le mercredi nous allons pouvoir faire le cercle d’or, tout le monde est super impatient et heureux. Nous aurions du partir a 9 heures, amis avec le retards islandais nous arrivons a démarrer le voyage a 10 heures. En faite, je n’ai pas encore rencontré de islandais qui n’est pas en retard :))
+
+Nous nous arrêtons en premier a la cascade. Elle est vraiment super grande, j’étais choqué par sa taille. C’était très beau de pouvoir voir cette chute d’eau géante qui est entouré de nature magnifique.
+
+![](/images/img_0894.jpg)
+
+Le prochain arrêt sont les geysers. Comme c’était impressionnant de voir de l’eau entre 80 et 100°C jaillir du geyser, même si tout autour du geyser était pleins de glace eta e neige. L’eau sort tout les 4 a 10 minutes et jaillit de 15 a 20 mètres de haut!
+
+![](/images/img_7463.jpg)![](/images/img_0902.jpg)
+
+La dernière destination est le parc national Thingvellir. La bas 2 plaques tectoniques se touchent. C’est aussi ou a été crée le premier parlement (un peu près vers 930 après J-C). Puis il y a aussi une rivière (Öxará) qui devient une super belle chute d’eau. Les plaques tectoniques peuvent être observé dans Silfra. La fissure de Silfra a just’à 63 mètres de profondeur, on peu aussi y plonger.
+
+![](/images/img_0954.jpg)![](/images/img_0931.jpg)![](/images/img_0917.jpg)![](/images/img_0943.jpg)
+
+Sur le chemin du retour nous avons eu la chance de voir un couché de soleil magnifique.
+
+![](/images/img_7373.jpg)![](/images/img_0971.jpg)
