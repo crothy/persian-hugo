@@ -37,3 +37,31 @@ Danach ging es direkt zum nächsten Wasserfall, der Wasserfall Seljalandsfoss, d
 ![](/images/img_7041.jpg)![](/images/img_7031.jpg)
 
 Am Abend sind wir dann am Haus angekommen. Es ist etwa 20 Minuten von Selfoss und 1 Stunde von Reykjavik entfernt.
+
+Dans la maison ou j’étais jusqu’à présent à Stöðvarfjörður il n’y avait plus assez de place avec les 10 nouveaux volontaires qui devaient arriver le lundi. Le lundi matin, quelques heures avant l’arrivée des nouveaux la décision a été prise que 9 d’entres nous vont aller dans une nouvelle maison à Selfoss, près de Reykjavik pour y planter des arbres avec l’organisation Forestry. On reçoit aussi la Golden Circle Tour (qui inclut le parc national Thingvellir, les geysers et la cascade Gullfoss) gratuite. Après avoir tiré au sort qui a le droit de partir (et oui, 14 personnes voulaient planter des arbres, moi y compris) 9 personnes ont été choisi parmi lesquels j’étais aussi. Vite il fallait faire les bagages pour partir le lendemain matin. J’étais étonné en voyant que tout avait encore assez de place dans mon sac à dos! Le sori nous avons eu la chance e voir des aurores boréales comme cadeau d’au revoir. Cette fois elles étaient très puissante puisqu’on pouvait les voir par la fenêtre malgré la lumière (normalement il doit faire complètement noir pour les voir, même les lumières qui illumines les routes sont dérangeantes.). J’ai juste eu le temps de faire une foto avec le téléphone que je veux partager avec vous.
+
+![](/images/polarlichter.jpg)
+
+Le matin qui suit était stressant, on a reçu la nouvelle que seulement 5 personnes pouvaient partir maintenant, donc il fallait à nouveau tirer au sort.
+
+Après une foto de groupe le voyage a commencé!
+
+![](/images/gruppenfoto_2.jpg)
+
+Le trajet dure un peu près 8 heures, il faut traversé le sud de l’Islande.
+
+Notre premier arrêt était le glacier et le diamond beach. Même si à cause du brouillard on ne pouvait pas vraiment voir le glacier c’étais très impressionnant de voir ses grandes masses de glace qui sont dan l’eau et détaché du glacier. Le diamond beach se site directement en face, il y a des morceaux de glace sur la plage, ce qui ressemble à des diamants.
+
+![](/images/gletscher.jpg)
+
+Notre prochain arrêt était la plage de sable noir. Le vent et la pluie étaient très forts, mais malgré cela la plage était magnifique avec ces rochers, le sable noir et les géantes vagues.
+
+![](/images/img_6986.jpg)
+
+Puis nous avons continués jusqu’à la jute d’eau Skógafoss. La pluie était toujours très puissante, mais la cascade était tellement grande, c’était juste magnifique.
+
+![](/images/img_6994.jpg)
+
+La prochaine cascade n’était pas loin. À Seljalandsfoss ont peu marcher sur un chemin qui est autour led la chute duaux, ce que je n’avais encore jamais vu. On pouvait donc voir la cascade de derrière, de devant et de plusieurs différents angles de vues ce qui était vraiment super!
+
+![](/images/img_7031.jpg)![](/images/img_7041.jpg)
