@@ -5,7 +5,7 @@ date = 2021-10-23T15:38:00Z
 description = ""
 image = "/images/img_0920.jpg"
 tags = ["Island", "Travel", "Around Iceland"]
-title = "Golden Circle Tour"
+title = "Golden Circle Tour/ le cercle d'or"
 
 +++
 Die Golden Circle Tour ist eine kleine Rundreise wo man von Reykjavik aus losfährt und dann 3 Sehenswürdigkeiten (Gullfoss Wasserfall, Großer Geysir, Thingvellir Nationalpark) besichtigt.
