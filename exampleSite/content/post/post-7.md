@@ -1,5 +1,5 @@
 ---
-title: Wie lange soll ich im Ausland bleiben?
+title: Wie lange soll ich im Ausland bleiben?/ Combien de temps vais-je rester à l’étranger?
 date: 2021-09-17T12:41:34+00:00
 image: "/images/img_5559_jpeg.jpg"
 author: Lara Roth
