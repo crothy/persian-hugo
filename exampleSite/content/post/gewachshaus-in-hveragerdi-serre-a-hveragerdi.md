@@ -16,7 +16,7 @@ Dann sind wir aber spät Abends endlich in Hveragerdi angekommen. Nach einem ers
 
 Wir arbeiten von 8 bis 9:30, dann haben wir 30 mins pause, um 10 fangen wir wieder an und arbeiten bis 12. Unsere Mittagspause geht bis 13 Uhr und dann arbeiten wir bis 15 Uhr. Nach der Arbeit kann jeder machen was er will, also spazieren gehen, im Haus bleiben oder zum Beispiel ins Schwimmbad gehen.
 
-Wo wir arbeiten gibt es insgesamt 4 Gewächshäuser, einer für den Tee, einer für Tomaten, der Andere für Karotten und der Letzte für Paprika. Wir mussten im Paprika und Tomatengewächshaus die letzten Tomaten und Paprikas pflücken und dann die Pflanzen in den Kompost tun damit wir den Boden für die nächsten Pflanzen vorberieten konnten. Wir durften die Tomaten und die Paprikas behalten, also gab es eine Zeit lang alles mit Tomaten oder immer einen Tomatensalat als Beilage weil wir so viele Tomaten hatten.
+Wo wir arbeiten gibt es insgesamt 4 Gewächshäuser, einer für den Tee, einer für Tomaten, der Andere für Karotten und der Letzte für Paprika. Wir mussten im Paprika und Tomatengewächshaus die letzten Tomaten und Paprikas pflücken und dann die Pflanzen in den Kompost tun damit wir den Boden für die nächsten Pflanzen vorbereiten konnten. Wir durften die Tomaten und die Paprikas behalten, also gab es eine Zeit lang alles mit Tomaten oder immer einen Tomatensalat als Beilage weil wir so viele Tomaten hatten.
 
 ![](/images/img_9721.jpg)
 
