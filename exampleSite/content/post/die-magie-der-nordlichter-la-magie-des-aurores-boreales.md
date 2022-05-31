@@ -16,8 +16,6 @@ Es gibt viele Mythen die versuchen zu erklären woher Nordlichter stammen. Es si
 
 ![](/images/img_1309.jpeg)
 
-Als ich Nordlichter zum ersten Mal gesehen habe, war ich wirklich überwältigt. Ich weiß gar nicht wie ich beschreiben soll wie das ist Nordlichter zu sehen, außer dass es magisch ist. Es ist wirklich das schönste Naturspektakel das ich je gesehen habe. Jedes Nordlicht ist einzigartig, jedes Nordlicht hat eine andere Form, tanzt anders durch den Himmel. Nordlichter können auch unterschiedliche Farben haben. In den meisten Fällen sind sie grün, aber manchmal tauchen sie auch in rosa, lila, rot oder blau auf.
-
 ![](/images/img_7666.jpeg)
 
 Als ich Nordlichter zum ersten Mal gesehen habe, war ich wirklich überwältigt. Ich weiß gar nicht wie ich beschreiben soll wie das ist Nordlichter zu sehen, außer dass es magisch ist. Es ist wirklich das schönste Naturspektakel das ich je gesehen habe. Jedes Nordlicht ist einzigartig, jedes Nordlicht hat eine andere Form, tanzt anders durch den Himmel. Nordlichter können auch unterschiedliche Farben haben. In den meisten Fällen sind sie grün, aber manchmal tauchen sie auch in rosa, lila, rot oder blau auf.![](/images/img_2549.jpeg)
