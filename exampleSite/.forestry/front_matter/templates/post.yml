@@ -27,6 +27,7 @@ fields:
   label: tags
 pages:
 - exampleSite/content/post/beach-cleanup.md
+- exampleSite/content/post/die-magie-der-nordlichter-la-magie-des-aurores-boreales.md
 - exampleSite/content/post/digitale-umweltverschmutzung.md
 - exampleSite/content/post/gewachshaus-in-hveragerdi-serre-a-hveragerdi.md
 - exampleSite/content/post/golden-circle-tour.md
