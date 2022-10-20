@@ -3,8 +3,8 @@ author = "Lara Roth"
 categories = ["How to?", "Around Iceland", "Travel", "Island"]
 date = 2022-10-20T18:57:00Z
 description = ""
-image = ""
-tags = []
+image = "/images/img_0756.jpeg"
+tags = ["Island", "Travel", "Around Iceland", "How to?"]
 title = "Die schönsten Orte Islands"
 
 +++
@@ -110,6 +110,12 @@ Ein sehr kleines unscheinbares Fischerdörfchen. Es liegt direkt am Wasser und i
 
 Mein Lieblingsdorf! Auch das Dorf ist wunderschön. Umgeben von Bergen und Wasser liegt es wirklich an einer idyllischen Stelle. Man kann dort spazieren oder sich an den Strand setzten. Es gibt einen kleinen Picknickplatz direkt neben dem Strand, wo man sehr gut eine kleine Pause machen kann.
 
+![](/images/img_8325.jpg)
+
 19\.Reykjavik
 
-Ich hätte fast vergessen die Hauptstadt mitzuzählen. Ich war ein paar Mal dort, un dich habe immer noch nicht alles gesehen was man sehen kann. Aber die Stadt hat sehr viele Museen, man kann an der Küste entlang laufen, e sind wunderschöne Gebäude und natürlich die wunderschöne Hallgrimskirkja, die Kirche die an die isländische Landschaft und an Gletscher erinnern soll.In Reykjavik gibt es auch oft Festivals oder andere Festivitäten die sehenswert sind. Ich hab einmal eine Lichtershow gesehen, wo auf die Kirche mit Lichter ein Spektakel zu sehen war. Außerdem ist auch noch die Rainbow Street sehenswert, so wie die vielen Secondhand Läden die man in der Stadt findet.
+Ich hätte fast vergessen die Hauptstadt mitzuzählen. Ich war ein paar Mal dort, un dich habe immer noch nicht alles gesehen was man sehen kann. Aber die Stadt hat sehr viele Museen, man kann an der Küste entlang laufen, es sind wunderschöne Gebäude und natürlich die Hallgrimskirkja, die Kirche die an die isländische Landschaft und an Gletscher erinnern soll oder die Harpa. In Reykjavik gibt es auch oft Festivals oder andere Festivitäten die sehenswert sind. Ich hab einmal eine Lichtershow gesehen, wo auf die Kirche mit Lichter ein Spektakel zu sehen war. Außerdem ist auch noch die Rainbow Street sehenswert, so wie die vielen Secondhand Läden die man in der Stadt findet.
+
+![](/images/img_2236.jpeg)![](/images/img_2214.jpeg)
+
+![](/images/img_9759.jpeg)
