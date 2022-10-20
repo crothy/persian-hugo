@@ -102,7 +102,7 @@ Der Nationalpark ist auch oft im golden circle Tour enthalten. Es ist ein riesig
 ![](/images/img_0943.JPG)  
 17\. Djupivogur
 
-Ein sehr kleines unscheinbares Fischerdörfchen. Es liegt direkt am Wasser und ist wirklich sehr schön. Jedes Mal wenn wir von der Arbeit im Wald zurückkamen hielten wir in diesem Dorf in einem Cafe an und tranken eine heisse Schokolade. Das Dorf ist sehr klein, aber es ist wirklich schön und man kann durch das Dorf spazieren bis zu einem Strand.
+Ein sehr kleines unscheinbares Fischerdörfchen. Es liegt direkt am Wasser und ist wirklich sehr schön. Jedes Mal wenn wir von der Arbeit im Wald zurückkamen hielten wir in diesem Dorf in einem Cafe an und tranken eine heiße Schokolade. Das Dorf ist sehr klein, aber es ist wirklich schön und man kann durch das Dorf spazieren bis zu einem Strand.
 
 ![](/images/img_7845.jpeg)
 
