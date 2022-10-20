@@ -3,7 +3,7 @@ author = "Lara Roth"
 categories = ["How to?", "Around Iceland", "Travel", "Island"]
 date = 2022-10-20T18:57:00Z
 description = ""
-image = "/images/img_0756.jpeg"
+image = "/images/img_5554.JPG"
 tags = ["Island", "Travel", "Around Iceland", "How to?"]
 title = "Die schönsten Orte Islands"
 
