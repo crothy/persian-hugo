@@ -3,7 +3,7 @@ author = "Lara Roth"
 categories = ["How to?"]
 date = 2022-11-23T23:00:00Z
 description = ""
-image = "/images/img_9839.jpg"
+image = "/images/img_6603.jpg"
 tags = ["How to?"]
 title = "Wie geht es jetzt weiter?"
 
