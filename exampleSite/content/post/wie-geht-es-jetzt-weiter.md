@@ -8,7 +8,7 @@ tags = ["How to?"]
 title = "Wie geht es jetzt weiter?"
 
 +++
-Ich hab in letzter Zeit viel überlegt wie es mit diesem Blog weitergehen soll. Meine Reise auf Island war zu Ende, ich hatte schon darüber geschrieben. Aber irgendwie wollte ich nicht mit dem Blog aufhören, das schreiben macht mir nämlich echt Spaß. Und dann dachte ich mir dass ich über die Themen schreiben kan die mich beschäftigen, über die ich immer weiter lerne.
+Ich habe in letzter Zeit viel überlegt wie es mit diesem Blog weitergehen soll. Meine Reise auf Island war zu Ende, ich hatte schon darüber geschrieben. Aber irgendwie wollte ich nicht mit dem Blog aufhören, das schreiben macht mir nämlich echt Spaß. Und dann dachte ich mir dass ich über die Themen schreiben kan die mich beschäftigen, über die ich immer weiter lerne.
 
 Gerade passiert so viel auf der Welt, manchmal ist es ein bisschen erdrückend. Aber es ist mir wichtig auf Themen aufmerksam zu machen, zu informieren und einfach darüber schreiben. Parallel dazu werde ich ein bisschen über mein Leben, mein Studium in Paris berichten.
 
